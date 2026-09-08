@@ -58,8 +58,8 @@ Currently exploring programming, DSA, and web development while figuring out wha
 
 ## Find me
 
-📧 **Email:** your-email@example.com  
-💼 **LinkedIn:** [Parnika Kosuri](YOUR_LINKEDIN_URL)
+📧 **Email:** kosuriparnika7@gmail.com
+💼 **LinkedIn:** [Parnika Kosuri](www.linkedin.com/in/parnika-kosuri-699521383)
 
 ---
 
