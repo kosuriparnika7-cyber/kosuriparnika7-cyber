@@ -59,7 +59,7 @@ Currently exploring programming, DSA, and web development while figuring out wha
 ## Find me
 
 📧 **Email:** kosuriparnika7@gmail.com
-💼 **LinkedIn:** [Parnika Kosuri](www.linkedin.com/in/parnika-kosuri-699521383)
+💼 **LinkedIn:** [Parnika Kosuri] (www.linkedin.com/in/parnika-kosuri-699521383)
 
 ---
 
